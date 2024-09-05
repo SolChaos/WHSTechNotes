@@ -1,4 +1,4 @@
-#September 5,2024
+# September 5,2024
 Well a video game I like is Pokemon, it has a simplistic charm that I can enjoy when wanting to play a relaxing game. 
 Secondly the mechanics are easy to understand and type matchups are easy to learn.
 Third is the decent challenge and team combinations for various pokemon.
