@@ -43,3 +43,9 @@ It became a tool of destuction or a haven for us.
 One positive impact it has done are ads, they help give us reasons why we should vote this person and what they will do for us.
 However, on the other hand, they could be falsely spreading information about their competitors and if they don't know how to make an ad, they could lose the election.
 Now I can get into detail of various other things but overall, it has had a positive change on the election.
+
+# November 4, 2024
+1:Because if you don't, there are plenty of big companies and hackers that will steal and sell away your data all for a quick buck.
+2:First off, a vpn that is actually trusted and works.
+3:For me, not really as I know better than to do something like that.
+4:You could have a complex password or login for your very important data or antivirus,while allowing the data you want spread and shown be only that.
