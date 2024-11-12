@@ -49,3 +49,7 @@ Now I can get into detail of various other things but overall, it has had a posi
 2:First off, a vpn that is actually trusted and works.
 3:For me, not really as I know better than to do something like that.
 4:You could have a complex password or login for your very important data or antivirus,while allowing the data you want spread and shown be only that.
+
+# November 12, 2024
+1:Many companies have released games, movies, and shows recently, this relates to us because; alright I'ma be real, there's not really a good way to say these events relate to us that much, overall not many events relate to us besides it coming from a bunch of developers and creators.
+2:On how these could improve is, well so far, most of it has been good and continue to be as long as they know what they are doing. Plus technology will continue to evolve so much and that's it, bye.
