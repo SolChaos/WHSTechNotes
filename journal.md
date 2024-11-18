@@ -53,3 +53,6 @@ Now I can get into detail of various other things but overall, it has had a posi
 # November 12, 2024
 1:Many companies have released games, movies, and shows recently, this relates to us because; alright I'ma be real, there's not really a good way to say these events relate to us that much, overall not many events relate to us besides it coming from a bunch of developers and creators.
 2:On how these could improve is, well so far, most of it has been good and continue to be as long as they know what they are doing. Plus technology will continue to evolve so much and that's it, bye.
+
+# November 18, 2024
+Well for starters, technology has allowed us to transport more food and allow a lot more farmers, fishers, and ranchers to give out their products. It also allows fast food places to deliver more of their food to other places, thus another way to sell their grub. The one thing I can imagine it being bad is errors on relying purely on technology as there are many cases where ai failed to deliver meals all because of simple things such as parallel parking, or putting people out of job. So I think it's best that we don't overrely on technology and still have human production and influence on the industry.
