@@ -56,3 +56,6 @@ Now I can get into detail of various other things but overall, it has had a posi
 
 # November 18, 2024
 Well for starters, technology has allowed us to transport more food and allow a lot more farmers, fishers, and ranchers to give out their products. It also allows fast food places to deliver more of their food to other places, thus another way to sell their grub. The one thing I can imagine it being bad is errors on relying purely on technology as there are many cases where ai failed to deliver meals all because of simple things such as parallel parking, or putting people out of job. So I think it's best that we don't overrely on technology and still have human production and influence on the industry.
+
+# December 2, 2024
+So synthetic biology is a field of science that manipulates the genetic material or material of organisms to design and create new biological systems. Here's what I think, it has both potential, but also consequences. First off, while it can create new things for us as we continue to live in world of climate change, however, if we're not careful, we could accidentally create a virus or worse. As how this could help me in game design and programming, it could help me in world design/layout. as for ethical concerns, this needs to be heavily monitered and studied before experimenting all willy nilly.
