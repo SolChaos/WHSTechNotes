@@ -59,3 +59,6 @@ Well for starters, technology has allowed us to transport more food and allow a 
 
 # December 2, 2024
 So synthetic biology is a field of science that manipulates the genetic material or material of organisms to design and create new biological systems. Here's what I think, it has both potential, but also consequences. First off, while it can create new things for us as we continue to live in world of climate change, however, if we're not careful, we could accidentally create a virus or worse. As how this could help me in game design and programming, it could help me in world design/layout. as for ethical concerns, this needs to be heavily monitered and studied before experimenting all willy nilly.
+
+# December 9, 2024 
+Brain rot is a slang term that perceives stupidity of mindless online content. As for me personally I avoid brain rot and watch more typical youtube videos such as sprite fights and Pokemon and so far it's been positive for me. As for those runner-up words, they have absoulety zero connection to me. It is absolutely possible to avoid brain rot and balance meaningful engagement with technology, I have been doing this.
