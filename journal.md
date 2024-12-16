@@ -62,3 +62,6 @@ So synthetic biology is a field of science that manipulates the genetic material
 
 # December 9, 2024 
 Brain rot is a slang term that perceives stupidity of mindless online content. As for me personally I avoid brain rot and watch more typical youtube videos such as sprite fights and Pokemon and so far it's been positive for me. As for those runner-up words, they have absoulety zero connection to me. It is absolutely possible to avoid brain rot and balance meaningful engagement with technology, I have been doing this.
+
+# December 16, 2024 
+Absolutely, not only do I get two weeks off from school, but also Christmas, going to California, plenty of free time, new games to maybe play, and more. I'm gonna love it plus I may play some VR that my cousins has. So yeah,I am definitely looking forward to winter break.
