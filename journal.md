@@ -65,3 +65,8 @@ Brain rot is a slang term that perceives stupidity of mindless online content. A
 
 # December 16, 2024 
 Absolutely, not only do I get two weeks off from school, but also Christmas, going to California, plenty of free time, new games to maybe play, and more. I'm gonna love it plus I may play some VR that my cousins has. So yeah,I am definitely looking forward to winter break.
+
+# January 8, 2024
+1:I enjoyed messing around with the controls and playing with the things I made.
+2:I want to make a sprite fighting game that works and is good.
+3:I'm interested in becoming a game creator; and I feel like I'll need some help and a program that can handle and make my dream game, a reality.
