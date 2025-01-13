@@ -70,3 +70,6 @@ Absolutely, not only do I get two weeks off from school, but also Christmas, goi
 1:I enjoyed messing around with the controls and playing with the things I made.
 2:I want to make a sprite fighting game that works and is good.
 3:I'm interested in becoming a game creator; and I feel like I'll need some help and a program that can handle and make my dream game, a reality.
+
+# January 13, 2024
+I think there's both pros and cons. Firstly better ai can teach it to be more human-like and that in turn can allow it to understand emotions, personal struggles, and more understandable. But the con is such a thing will take way longer then a simple months but entire years, and people overall still far exceed ai and we need people to not handle and control ai, but to also do everything as whether you want to admit or not it's people not to lay dozens of people for just an ai that's still in it's toddler stages. As for how I prepare myself, I'll keep myself ahead of the game and more experience in the industry thus a greater chance of staying and keeping a job because I'm a valiuable asset to whatever company I'm working for.
