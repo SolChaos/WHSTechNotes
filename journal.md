@@ -73,3 +73,6 @@ Absolutely, not only do I get two weeks off from school, but also Christmas, goi
 
 # January 13, 2025
 I think there's both pros and cons. Firstly better ai can teach it to be more human-like and that in turn can allow it to understand emotions, personal struggles, and more understandable. But the con is such a thing will take way longer then a simple months but entire years, and people overall still far exceed ai and we need people to not handle and control ai, but to also do everything as whether you want to admit or not it's people not to lay dozens of people for just an ai that's still in it's toddler stages. As for how I prepare myself, I'll keep myself ahead of the game and more experience in the industry thus a greater chance of staying and keeping a job because I'm a valiuable asset to whatever company I'm working for.
+
+# January 22, 2025
+Well it can impact in big ways such as bans, the lifting or enforcing of new rules, or even limiting how much that companies can provide it's users. As for how Tiktok can keep it's users safe, is appling things such as VPNs, firewalls, and encrypting data and code. A policy of having all users in a encrypted database and they are not allowed to ever sell or use your data. Well in the future, I can find true VPNs and apply them to all my important data. 
