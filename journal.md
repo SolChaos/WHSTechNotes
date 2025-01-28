@@ -76,3 +76,12 @@ I think there's both pros and cons. Firstly better ai can teach it to be more hu
 
 # January 22, 2025
 Well it can impact in big ways such as bans, the lifting or enforcing of new rules, or even limiting how much that companies can provide it's users. As for how Tiktok can keep it's users safe, is appling things such as VPNs, firewalls, and encrypting data and code. A policy of having all users in a encrypted database and they are not allowed to ever sell or use your data. Well in the future, I can find true VPNs and apply them to all my important data. 
+
+# January 28, 2025
+| Name     | Car           | Mistake |
+| :------- | :--           | :------ |
+| Jimmy    |Honda Civic    |Drilled hole in gas tank  |
+| Kayla    |GMC Sierra     |Fixed wrong problem       |
+| Bart     |Toyota Corolla |Left stains on the carpet |
+| Harrison |Subaru Forester|Left oil cap off          |
+
