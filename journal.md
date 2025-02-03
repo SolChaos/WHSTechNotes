@@ -85,3 +85,10 @@ Well it can impact in big ways such as bans, the lifting or enforcing of new rul
 | Bart     |Toyota Corolla |Left stains on the carpet |
 | Harrison |Subaru Forester|Left oil cap off          |
 
+# February 3, 2025
+1: They create a trajectory-planning system and choose a safe path forward.
+2:Automate routine tasks.
+3:This can cause errors at best and destructive malfunctions at worst.
+4:It's possible but I can't give a clear answer due to not knowing the full story and what caused the plane to actually crash.
+5:Yes, unless the airport is willing to made their code encrypited and have several passcodes or firewalls to ensure that any would be hackers wouldn't be able to easily access it.
+6:It can be used to safeguard and block out any future hackers, malware, or killcodes.
