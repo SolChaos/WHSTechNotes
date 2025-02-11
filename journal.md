@@ -92,3 +92,11 @@ Well it can impact in big ways such as bans, the lifting or enforcing of new rul
 4:It's possible but I can't give a clear answer due to not knowing the full story and what caused the plane to actually crash.
 5:Yes, unless the airport is willing to made their code encrypited and have several passcodes or firewalls to ensure that any would be hackers wouldn't be able to easily access it.
 6:It can be used to safeguard and block out any future hackers, malware, or killcodes.
+
+February 11, 2025
+Shape	Color	Count
+Circle	Green	7
+Square	Yellow	5
+Hexagon	Brown	6
+Triangle	Purple	4
+Octagon	Red	3
