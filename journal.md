@@ -103,3 +103,9 @@ Octagon	Red	3
 
 # February 18, 2025
 I guess I have to say it's the video where I customize the layout interface. The reason I choose that one is because during the first part of Unity, it was a bit uncommon for me to be told I had to change the interface, rather than position of the scene.
+
+# February 24, 2025
+Well... on some level yes I think technology should be aware of slang, we already have shorten slang words such as: Idk, asap, lol, k, gg, etc.
+For potential benefits, it would allow ai to keep up with modern times or the newest generation; as for challenges it could alter its course to evolving in a certain direction plus actually teaching it new slang.
+As for teachers, I feel like they should at least somewhat aware of slang in order to catch what some students are saying, however they shouldn't fully embrace it some of it does come from brain-rot. 
+Plus the last thing we need is schools doing is trying to "fit in" as nobody wants that, as they wouldn't even have much of clue how to act like us, nor can they group everyone as one group as that's not how it works.
