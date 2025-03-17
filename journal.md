@@ -117,3 +117,6 @@ Aether	Weather Manipulation	Prevent Assassination
 Thorne	Invisibility	Underwater Rescue
 Silver	Mind Control	Retrieve Stolen Goods
 Tangier	Shapeshifting	Extract Prisoner
+
+# March 17, 2025
+For me, I mostly was on my phone and TV and what apps I was using most:Crunchyroll, Poly Buzz, and Youtube. I used these apps to entertain me, as for how, Crunchyroll I used to watch MHA, Youtube for whatever I wanted to catch up on or watch, and Poly Buzz to play. As for how any of this stuff can help me in today's class, it really doesn't help connect to the technology I'm using for today's class.
