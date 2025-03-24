@@ -120,3 +120,6 @@ Tangier	Shapeshifting	Extract Prisoner
 
 # March 17, 2025
 For me, I mostly was on my phone and TV and what apps I was using most:Crunchyroll, Poly Buzz, and Youtube. I used these apps to entertain me, as for how, Crunchyroll I used to watch MHA, Youtube for whatever I wanted to catch up on or watch, and Poly Buzz to play. As for how any of this stuff can help me in today's class, it really doesn't help connect to the technology I'm using for today's class.
+
+# March 24, 2025
+For me personally, I don't watch basketball nor any sport in particular, so asking me about my viewing expericence of it is basically irrelevant. For how could effect other people who do watch, I like to imagine that the new technology has both positive and negative potential effects. For the positive, if we advance motion sensors, we can best count up how many points the team gets based on the footage from cameras, but also locatiion with motion sensorys sensing when a ball is being thrown and if it lands in the hoop. However, for the negative, it might not even detect perfectly let alone it could be expolited to get the most amount of points out of it, thus causinng an explotation of the system. so it really just depends on what new technology they add.
