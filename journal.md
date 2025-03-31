@@ -123,3 +123,10 @@ For me, I mostly was on my phone and TV and what apps I was using most:Crunchyro
 
 # March 24, 2025
 For me personally, I don't watch basketball nor any sport in particular, so asking me about my viewing expericence of it is basically irrelevant. For how could effect other people who do watch, I like to imagine that the new technology has both positive and negative potential effects. For the positive, if we advance motion sensors, we can best count up how many points the team gets based on the footage from cameras, but also locatiion with motion sensorys sensing when a ball is being thrown and if it lands in the hoop. However, for the negative, it might not even detect perfectly let alone it could be expolited to get the most amount of points out of it, thus causinng an explotation of the system. so it really just depends on what new technology they add.
+
+# March 31, 2024
+1:I'm currently mentally,emotionally, and physically stable as I am right now.
+2: The most stressful is the impending STAAR test and the sheets of homework I'm getting lobbed at with the only time I have to do them is Wedesday, Friday, and the weekend.
+3:Just solve each thing one step at a time and focus on the ones I turn in now to make time for the ones with no immedeate due date.
+4:Complete as much Unity as I can.
+5:Well........I don't really have anyone I talk to about this, just preferring to keep this to myself to not cause worry or burden others with thoughts I need help all the time now, which yes sometimes I do want to lean into someone I trust and relax until I'm comfortable to continue my own work, as I am pretty independent in that regard where I using prefer to do it alone as I want to get better and not drag people down with my problems. 
