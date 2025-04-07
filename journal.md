@@ -130,3 +130,6 @@ For me personally, I don't watch basketball nor any sport in particular, so aski
 3:Just solve each thing one step at a time and focus on the ones I turn in now to make time for the ones with no immedeate due date.
 4:Complete as much Unity as I can.
 5:Well........I don't really have anyone I talk to about this, just preferring to keep this to myself to not cause worry or burden others with thoughts I need help all the time now, which yes sometimes I do want to lean into someone I trust and relax until I'm comfortable to continue my own work, as I am pretty independent in that regard where I using prefer to do it alone as I want to get better and not drag people down with my problems. 
+
+# April 7, 2025
+Well for me, it being able to show me how to solve the question step by step and understand emotion. Would I use an ai tutor, maybe? I never had much reason to but I guess it's nice when I need to be reminded on how to solve an equation. Plus an ai tutor that shows you step by step on how to solve a problem is easier than flat out saying the answer as it can teach others to problem solve better than just getting answers and copy paste.
