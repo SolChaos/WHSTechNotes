@@ -133,3 +133,6 @@ For me personally, I don't watch basketball nor any sport in particular, so aski
 
 # April 7, 2025
 Well for me, it being able to show me how to solve the question step by step and understand emotion. Would I use an ai tutor, maybe? I never had much reason to but I guess it's nice when I need to be reminded on how to solve an equation. Plus an ai tutor that shows you step by step on how to solve a problem is easier than flat out saying the answer as it can teach others to problem solve better than just getting answers and copy paste.
+
+# April 14, 2025
+I feel like banning phones outright, is such a bad idea, not just for students but also for teachers, let me explain. If you ban phones for students, they be understandably mad and having teahcer not be affected by this rule will cause students to want to revolt, think about it, there are over hundreds of students in a given school compared to a few dozen faculty members, do you even think the adults stand a chance in a brawl, not even close. If this was implented in our school, I absoluetly would be livid, as phone restriction is already strict enough with some class, we don't need to ban them, as I will completely tear down the teachers who do have their phone out despite the ban and make sure they learn. 
