@@ -136,3 +136,8 @@ Well for me, it being able to show me how to solve the question step by step and
 
 # April 14, 2025
 I feel like banning phones outright, is such a bad idea, not just for students but also for teachers, let me explain. If you ban phones for students, they be understandably mad and having teahcer not be affected by this rule will cause students to want to revolt, think about it, there are over hundreds of students in a given school compared to a few dozen faculty members, do you even think the adults stand a chance in a brawl, not even close. If this was implented in our school, I absoluetly would be livid, as phone restriction is already strict enough with some class, we don't need to ban them, as I will completely tear down the teachers who do have their phone out despite the ban and make sure they learn. 
+
+# April 24, 2025
+Dear Coach Gonzales, 
+I wanted to thank you for allowing me to constantly go do my business almost everyday and even occasionally encouraging me when I'm doing laps, it may be simple but still I apperciate simplicity and everytime I'm in gym, I feel a lot more comfortable due to it being so big and open meaning when I want, I go for run and actually get a workout, but also the fact it's mostly a chill place where everyone can do whatever they want, play, relax, chat, etc. 
+Sincerely, Gabriel Noel Bentzen
