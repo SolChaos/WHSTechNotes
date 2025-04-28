@@ -141,3 +141,9 @@ I feel like banning phones outright, is such a bad idea, not just for students b
 Dear Coach Gonzales, 
 I wanted to thank you for allowing me to constantly go do my business almost everyday and even occasionally encouraging me when I'm doing laps, it may be simple but still I apperciate simplicity and everytime I'm in gym, I feel a lot more comfortable due to it being so big and open meaning when I want, I go for run and actually get a workout, but also the fact it's mostly a chill place where everyone can do whatever they want, play, relax, chat, etc. 
 Sincerely, Gabriel Noel Bentzen
+
+# April 28, 2025
+Name	  |Flavor	    |Occasion	      |Price
+Sally	  |Chocolate	|Graduation	    |$35.00
+Michael |Vanilla	  |Farewell Party	|$37.00
+Emma	  |Carrot	    |Birthday	      |$39.00
