@@ -147,3 +147,8 @@ Name	  |Flavor	    |Occasion	      |Price
 Sally	  |Chocolate	|Graduation	    |$35.00
 Michael |Vanilla	  |Farewell Party	|$37.00
 Emma	  |Carrot	    |Birthday	      |$39.00
+
+# May 6, 2025
+Claim: I believe 100 men could beat a silverback gorilla.
+Evidence:Silverback Gorillas commonly lack long term endurance in while fighting, can only last for a few minutes, even with adrenaline. Meanwhile people can have adrenaline that can last up to an hour with the average human endurance lasting up to 10-20 minutes in a intense situation while Silverback Gorillas can only last 3-5 minutes. Plus unlike a Silverback, humans can actually stragetize while Silverback Gorilla relies only on instincts and not thinking. Additionally, not all 100 men are gonna charge in, thus letting others know what not to do; and they can simple tag in and out when one person gets knocked back with they're being a reason why humanity has managed to survive and put down much stronger beasts due to our minds and numbers.
+Reason:All this means that 100 men could win given the many examples of evidence.
