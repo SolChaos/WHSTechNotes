@@ -152,3 +152,8 @@ Emma	  |Carrot	    |Birthday	      |$39.00
 Claim: I believe 100 men could beat a silverback gorilla.
 Evidence:Silverback Gorillas commonly lack long term endurance in while fighting, can only last for a few minutes, even with adrenaline. Meanwhile people can have adrenaline that can last up to an hour with the average human endurance lasting up to 10-20 minutes in a intense situation while Silverback Gorillas can only last 3-5 minutes. Plus unlike a Silverback, humans can actually stragetize while Silverback Gorilla relies only on instincts and not thinking. Additionally, not all 100 men are gonna charge in, thus letting others know what not to do; and they can simple tag in and out when one person gets knocked back with they're being a reason why humanity has managed to survive and put down much stronger beasts due to our minds and numbers.
 Reason:All this means that 100 men could win given the many examples of evidence.
+
+# May 13, 2025
+Claim: It is not ethical due to it being dangerous and costly.
+Evidence: If you were to hold it right as it would explode and combust, severel things will happen, firstly the fire can burn you, shrapnel can fly out and on you, thus causing bleeding. Next is the cost, no matter what is it, computers are expensive and it's highly unlikely a high school student has the money to pay it off, and they should be reminded that they will pay for the computer.
+Reason: This evidence shows why students shouldn't do this challenge.
