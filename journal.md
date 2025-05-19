@@ -157,3 +157,6 @@ Reason:All this means that 100 men could win given the many examples of evidence
 Claim: It is not ethical due to it being dangerous and costly.
 Evidence: If you were to hold it right as it would explode and combust, severel things will happen, firstly the fire can burn you, shrapnel can fly out and on you, thus causing bleeding. Next is the cost, no matter what is it, computers are expensive and it's highly unlikely a high school student has the money to pay it off, and they should be reminded that they will pay for the computer.
 Reason: This evidence shows why students shouldn't do this challenge.
+
+# May 19, 2025
+I am absolutely hype for summer. I can do whatever I want and do things I've been wanting to do but never could due to school time restrants. Such as watching more anime, working out more, learning how to cook, and even hang out with my friend outside of school. 
