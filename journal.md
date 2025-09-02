@@ -160,3 +160,6 @@ Reason: This evidence shows why students shouldn't do this challenge.
 
 # May 19, 2025
 I am absolutely hype for summer. I can do whatever I want and do things I've been wanting to do but never could due to school time restrants. Such as watching more anime, working out more, learning how to cook, and even hang out with my friend outside of school. 
+
+# September 2, 2025
+Claim:My stance on the new phone ban is that government fully didn't think about everything. Evidence: If you were forced to not go something that you enjoy for 8 hours including your break, which should be your time and peace, wouldn't you feel that the law is clearly flawed in that area. Reason: Think about, normally you'd agree to saying you choose prioritze work when you're on the clock, but when you're off the clock, shouldn't you be allowed to spend yoour freetime however you choose? so why should have to continue following a rule when I'm on my break and not on my work, the lunchtime is supposed to be my time of peace of only 30 minutes, but I guess Texas doesn't give a damn about who or what you are or the situtation, they simply prefer complete control over any semblence of free will.
