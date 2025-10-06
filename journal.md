@@ -175,3 +175,6 @@ Okay, a couple things wrong about this whole virtual store on Roblox. Firstly, g
 
 # September 30, 2025
 The meme originates from NBA. It means "leaving quickly" or "get lost". LaMelo Ball posted 67 in a tweet in it went viral. And soon this spreaded fast like brainrot. I for one am not a part of this trend as I've been heavily against stupid trends and brainrot. So thankfully nothing bad, just another passing trend ready to die off in a few months.
+
+# October 6, 2025
+Here's how I would run the school. I would still obviously have the no cell phones in class but during lunch you can since that's your break time. Secondly, during school hours, ai shouldn't be allowed unless after school or google searches. As for games, I'll allow if it's afterschool or when the student is done. If any of these are used as a teacher's assignment, then during that wait time, it'll be allowed, but once the teacher no longer allows the assignment to be turned in, then those things I mentioned will go back into place.
