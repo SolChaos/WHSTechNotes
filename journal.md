@@ -192,3 +192,6 @@ Name	|Main Dish	    |Dessert
 Fiona	|Gado Gado	    |Creme Brulee
 Tobias|Shrimp Ceviche |French Apple Cake
 Leanne|Beef Wellington|Raspberry Tiramisu
+
+# November 3, 2025
+journal excuse
