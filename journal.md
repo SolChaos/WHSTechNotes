@@ -198,3 +198,6 @@ journal excuse
 
 # November 10, 2025
 I believe the new technology helps connect people during christmas time. Here are my reasons, firstly, when it comes to new games you usually get them from consoles where you can multi-player on certain games like: Mario Party, Mario Kart, Minecraft, Fall Guys, Fortnite, etc. Secondly it allows for easy shipping and delivery when it comes to christmas shopping as even if you can't find your loved ones gifts in your area, you can order and find it online. Thirdly, potential new opportunities of where you technically can help explore your child's dreams, whether that's a scientist, doctor, sports player, etc; you can do it with new toys like a science kit, doctor's toys, sports equipment etc. And that's why I believe the new technology helps during christmas.
+
+# November 17, 2025
+I am looking forward to Thanksgiving Break for several reasons. Firstly, no school for a week, meaning less stress on myself than I already have. Secondly, I can finally work out as much as I want now and can get back into shape. Thirdly, more freetime to relax and enjoy myself. Fourthly, my birthday is on the 29th, so I'll have my birthday next week on Saturday and celebrate it. 
