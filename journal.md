@@ -201,3 +201,6 @@ I believe the new technology helps connect people during christmas time. Here ar
 
 # November 17, 2025
 I am looking forward to Thanksgiving Break for several reasons. Firstly, no school for a week, meaning less stress on myself than I already have. Secondly, I can finally work out as much as I want now and can get back into shape. Thirdly, more freetime to relax and enjoy myself. Fourthly, my birthday is on the 29th, so I'll have my birthday next week on Saturday and celebrate it. 
+
+# December 1, 2025
+One real job that uses drones is surprisingly construction, with the purpose of it to monitor site progress, create 3D models, and assist in safety measures. Programmers create software to control the drones, fly them around construction, collect data and analysis. The average salary for construction drone operators is $44,654 for annual salary in Texas. The requirements for this job is a FAA Part 107 Remote Pilot certificate. I wouldn't want this job because I have way bigger dreams and ambitions and I won't let this be my life. 
