@@ -204,3 +204,6 @@ I am looking forward to Thanksgiving Break for several reasons. Firstly, no scho
 
 # December 1, 2025
 One real job that uses drones is surprisingly construction, with the purpose of it to monitor site progress, create 3D models, and assist in safety measures. Programmers create software to control the drones, fly them around construction, collect data and analysis. The average salary for construction drone operators is $44,654 for annual salary in Texas. The requirements for this job is a FAA Part 107 Remote Pilot certificate. I wouldn't want this job because I have way bigger dreams and ambitions and I won't let this be my life. 
+
+# December 8, 2025
+Firstly, the reason why the self-driving car made so violations was because it was programmed with these dangers of moving past a school bus. It may recognize street lights but not lights on the back of a car, if it can then it most likely doesn't register a school bus as a car or truck. Meaning it's ai couldn't reigster or have anything to go off what it's been coded with. Unlike humans who can think outside the box, ai can't as it lacks so much more creativity and free thinking. As for a potential solution; maybe add a vechile database using information from the internet to give it protcols when facing new vechiles like a bus, a bike, motorcycle, a van, etc.
