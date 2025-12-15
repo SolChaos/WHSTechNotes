@@ -207,3 +207,6 @@ One real job that uses drones is surprisingly construction, with the purpose of 
 
 # December 8, 2025
 Firstly, the reason why the self-driving car made so violations was because it was programmed with these dangers of moving past a school bus. It may recognize street lights but not lights on the back of a car, if it can then it most likely doesn't register a school bus as a car or truck. Meaning it's ai couldn't reigster or have anything to go off what it's been coded with. Unlike humans who can think outside the box, ai can't as it lacks so much more creativity and free thinking. As for a potential solution; maybe add a vechile database using information from the internet to give it protcols when facing new vechiles like a bus, a bike, motorcycle, a van, etc.
+
+# December 15, 2025
+I plan to go to my grandma's house and spend time with my aunties and cousin coming over to visit for the whole week. We're gonna do a gift exchange, play board games, enjoy christmas dinner, and overall enjoy winter break and christmas.
