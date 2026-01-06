@@ -210,3 +210,6 @@ Firstly, the reason why the self-driving car made so violations was because it w
 
 # December 15, 2025
 I plan to go to my grandma's house and spend time with my aunties and cousin coming over to visit for the whole week. We're gonna do a gift exchange, play board games, enjoy christmas dinner, and overall enjoy winter break and christmas.
+
+# January 6, 2026
+Well for me, I wasn't using technology as much I thought I would since I didn't get any new video games. However, I did use it to order items I need for my grandma's gift and I did play a bit on my console, but mostly on my phone. Anyway, aside from those things, I basically relaxed and now got two new year resolutions:to finally get slim and improve on my communication skills.
