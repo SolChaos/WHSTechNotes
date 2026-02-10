@@ -225,3 +225,6 @@ I took both the English and Math TSI for Tuesday and Wednesday. For the English,
 
 # February 2, 2026
 Well professor behavior in shared spaces is basically common for the most part cause anyone with common sense and a functioning brain can know that all you need to do is just do the work you need to finish today and not goof off, pretty simple to follow. Now in-case our attitude does cause some problems, then some discussions with the person you are causing problems with; are needed in order to both get along and figure out what way you can solve this. This applies to both school and work so long as both individuals/parties are willingly to listen to the other for real and change to fix the issue at hand. I say both because most definintely some teachers or higher rank employee will downplay the students or lower rank employees own personality and issues and blame everything on them and not also change themself. 
+
+# February 10, 2026
+Not really, I don't hate it, I don't just watch any sports in general cause I'm not obsessed with it. So no, I didn't watch the Super Bowl LX. 
