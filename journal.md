@@ -228,3 +228,6 @@ Well professor behavior in shared spaces is basically common for the most part c
 
 # February 10, 2026
 Not really, I don't hate it, I don't just watch any sports in general cause I'm not obsessed with it. So no, I didn't watch the Super Bowl LX. 
+
+# February 23, 2026
+Most likely the biggest impact was the wearable sensors since there's so many things it could cover. When you wear a sensor, it could tract your heatbeat to make sure you're healthy, show that you made the finish line, and tract for any abonomailies such as steriods or irregular heatbeat thus allowing immediate medical attention and stop cheating. These things are the few things I can think of for why a sensor is the most important technology in the olympics.
