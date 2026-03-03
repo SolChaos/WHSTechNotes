@@ -231,3 +231,20 @@ Not really, I don't hate it, I don't just watch any sports in general cause I'm 
 
 # February 23, 2026
 Most likely the biggest impact was the wearable sensors since there's so many things it could cover. When you wear a sensor, it could tract your heatbeat to make sure you're healthy, show that you made the finish line, and tract for any abonomailies such as steriods or irregular heatbeat thus allowing immediate medical attention and stop cheating. These things are the few things I can think of for why a sensor is the most important technology in the olympics.
+
+# March 3, 2026
+Job 1
+Company:USAA.
+Job Title:Software Engineer.
+Education Required:Bachelor's Degree in Computer Science, Engineering, or any STEM Field.
+Experience Required:4-6+ years.
+Skills:Java/J2EE, JavaScript, TypeScript, Python, C++, Go, Kotlin, or SQL.
+Descripiton: Someone who designs, develops, tests, and deploys software solutions for banking, insurance, and investment products within an Agile environment.
+Job 2
+Company:H-E-B.
+Job Title:Digital Analyst.
+Education Required:Bachelor's Degree in Data Science, Business, Statistics, Computer Science, or anything in the related field.
+Experience Required:2+ years.
+Skills:SQL profiency, communication, problem solving, etc
+Description:Someone who is a data-driven partner within the Digital/eCommerce team, responsible for evaluating app and website performance to improve customer experience and drive profitability.
+If I had to pick between these two, I choose to be a Digital Analyst at H-E-B. The reasons for are experience and what I have to do as the job. Firstly, I need only 2+ years experience in data analyst compared to the 4-6+ years of experience in Computer Science or any related field for a Software Engineer. Secondly, managing apps for customer support and profit margins for H-E-B will be a lot easier than doing what a Software Engineer does at USAA. And that's why I would choose it over a Software Engineer at USAA. 
