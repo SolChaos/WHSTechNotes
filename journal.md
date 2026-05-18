@@ -263,5 +263,11 @@ Overall the way ai is used in both media and music is negative for me. For media
 
 # April 28, 2026
 I suppose one thing technology influenced me is playing video games. I was relax in my room bored when I go on my phone and use an app that let's me play retro video games and I picked one called Digimon World Dusk. Now obviously with this being apart of technology as that's the only way you can play, you can say that it did influence me as I'm now invested and actively playing it when I have freetime. And this can apply to all video games as every single one of them requires some technology in order to run and play on, otherwise it wouldn't be played nor be used on technology if otherwise. As we go on and on with technology advancing the truth of video games only being able to be played on technology will remain forever true.
-# May 8, 2025
+# May 8, 2026
 Well, that's kinda hard to describe so I'll provide some individual examples rather than whole ones. For Youtube, it's more of an algorithm where it feeds me videos I might be interested or new content from channels I watch. For Google,I use it mostly when I don't know something, so I either use my phone or the chromebook, but overall, I use it to help me, but I can do most assignment on my own. So in a sense I'm not training ais, it's more of me feeding into an algorithm where they find patterns and use them to help me look stuff up quicker. So, in summary, I'm not overeliant on it, I only use ai incase an assignment requires it or I need to make follow up questions on an existing question.
+
+# May 15, 2026
+I've certainly grown more than I used to in such a short time, making a couple of new friends, getting their phone numbers, talking more, letting myself be more expressive, embrace who I am, blend both work and working out, sing more. I made friends with someone in my sixth period and when I was in the auditorium. I got the phone numbers of my longest last friend from middle school, the girl in my sixth period, and someone I knew from middle school as an aqquantice and got their phone number in the auditorium. I have be more happy than I was since I was forced for so long to hide my emotions but since I made more friends, I talked more and my expressions are more active. And even though school is placing more work on me, I still make sure to do small workouts when I can.
+
+# May 18, 2026
+If I had to describe my friend Isabelle to the cops, I would say she is someone who has long hair, wears glasses, petite, under 100 lbs, and wears a hoodie most of the time.
